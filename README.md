@@ -1,0 +1,2 @@
+# SIGED-certificado-secundaria-autenticacion-MAEM660524HSRDSR05
+MAEM660524HSRDSR05
